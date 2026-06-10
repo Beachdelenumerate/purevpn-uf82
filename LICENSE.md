@@ -1,4 +1,4 @@
-
+vip PureVPN Extension | auto-connect + multi-protocol-support offers the most advanced PureVPN extension, with auto-connect and multi-protocol-support. Ideal for users who value
 
 
 
